@@ -1,1 +1,1 @@
-# public
+# README Oudinet Arthur, Sonneville Théo
